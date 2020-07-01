@@ -9,45 +9,28 @@
 - 7.20或7.21凌晨到达，7.21号上午开始玩
 - 7.25晚或7.26回
 
-住宿时间为 5-6晚。
+住宿时间为 5晚。
 
 预算（人均）：
 
 | 项目 |                          预算                           |   总计   |
 | :--: | :-----------------------------------------------------: | :------: |
 | 出行 | 机票 300~600 ，来回600~1200<br />去其他景点高铁 100~200 | 700~1400 |
-| 住宿 |                   100~120每晚，5~6晚                    | 500~720  |
+| 住宿 |                       95每晚，5晚                       |   450    |
 | 吃喝 |                      100~150，5天                       | 500~750  |
 | 玩乐 |                         200~400                         | 200~400  |
 
-总计：1900~3270/人
+总计：1850~3000/人
 
 
 
-### 住宿：
+### 住宿（已定）：
 
-|                          酒店/民宿                           | 人均价格 |           备注            |
-| :----------------------------------------------------------: | :------: | :-----------------------: |
-|    [机麻房/市中心loft2室2卫套房](http://dpurl.cn/W5ae9kT)    |  95/晚   | 120㎡，3卧2厅1厨2卫，loft |
-| [每客消毒  熙里【时絮】  出门即是太古里](http://dpurl.cn/ksecaOH) |  40/晚   |      68㎡，2卧1厨1卫      |
-|         [特价，春熙路内](https://abnb.me/ft7cXIDgG7)         |  60/晚   |      85㎡，2卧1厨1卫      |
-| [清欢轻奢酒店公寓](https://w.meituan.com/s/default1?mt_share_id=kbystspmkncx&url=http%3A%2F%2Fwww.meituan.com%2Fshop%2F1581476434.html%3Futm_term%3DAandroidBgroupC10.8.202DsystemEpoiG2020062816155100000000000001AF3DD2ADF924F35B8E024459DAA5AE8A153835328008219534713%26utm_source%3Dappshare%26utm_medium%3Dandroidweb%26utm_fromapp%3Dmore) |  90/晚   |           35㎡            |
+- [机麻房/市中心loft2室2卫套房](http://dpurl.cn/W5ae9kT)  
 
-**机麻房/市中心loft2室2卫套房：**
+  
 
-![img](https://img.meituan.net/phoenix/1d37ce0949d4dffb46c05d4e9d614376772657.jpg@1920w_1080h)
 
-**每客消毒  熙里【时絮】  出门即是太古里：**
-
-![img](https://img.meituan.net/phoenix/21db7b57ff7bf7ea3cfa07eaf60a9db62010265.jpg@1920w_1080h)
-
-**特价，春熙路内：**
-
-![舒适的客厅](https://z1.muscache.cn/im/pictures/65be3ead-70e3-4248-be93-e6cc33758815.jpg?im_w=1200)
-
-**清欢轻奢酒店公寓：**
-
-![img](http://p0.meituan.net/tdchoteldark/c67265f960afc6c7783b82e116e2026a_1_b8eb8f1aa8e3ef7a_1_Xb29K3l375cIRUP5FMHcb4kUKR5bSg/sxWUq4AHV/fhwiLWrXBYccu3jONjlWjiEt4wYk4XidR6Xy8WDW+qqkaGuHgOLzuD6UR7zN10Fiy8LNlGppG/iINhw+ppDZH9P)
 
 ### 景点
 
